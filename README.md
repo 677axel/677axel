@@ -8,5 +8,5 @@
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 <img width="150" height="20" alt="blue glitter template" src="https://github.com/user-attachments/assets/a16f5c5f-970f-4342-98d7-33711a5f654f" />
-**' what do you think they're saying..?"**
+' what do you think they're saying..?"
 <span style="color:orange">IWC . !! DNC !!</span>
